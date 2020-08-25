@@ -1,0 +1,2 @@
+# Double-Xchange
+Hi,  My name is Edfrey from Kenya, I wrote and submitted a data management solution paper across mobile phone operators (service providers in 2008). I received the patent at the time but was however unable to get support, direction or funding at the time. Would appreciate if I could get some advice and direction on what to do as it has been over 10 years and would like to see if my idea can be evaluated again.  Regards,  Edfrey
